@@ -1,7 +1,7 @@
 <p align="center">   <img width="600x600" height="500" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/f79908e8501a129828d8df0435b8234560fa6e70/%F0%90%84%88%E2%A0%80co%E2%A0%80%E2%A0%80%E2%91%85%E2%A0%80%E2%A0%80%E2%A0%80%20rentry%E2%A0%80%E2%A0%80%CB%AC.gif>
 </p>
 
-<p align="left"> $\color{#90d6ee}{\textsf{✦ ◜먼저 와서 보여줘}}$
+<p align="center"> $\color{#90d6ee}{\textsf{✦ ◜먼저 와서 보여줘}}$
 <p align="center"> $\color{#90d6ee}{\textsf{'cause I'm not gonna be the one to get hurt..}}$
 
 <p align="center"![Profile Views](https://komarev.com/ghpvc/?username=lyrxqss&color=blue&label=delusus)
