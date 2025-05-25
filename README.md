@@ -22,11 +22,3 @@
 </p>
 </p>
 
-
-
-
-
-
-
-<p align="center">   <img width="400x400" height="300" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/cfc96615284089688af22c435baa681d00424458/indir%20(3).gif>
-</p>
