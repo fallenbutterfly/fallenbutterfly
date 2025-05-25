@@ -24,8 +24,7 @@
 
 
 
-<p align="center">   <img width="600x600" height="500" src=https://github.com/lyrxqss/lyrxqss-2/blob/f6799bf1ab17a88b0e2b4b6beed0af3ffd7127d9/%E1%B6%BB%20%F0%9D%98%87%20%F0%90%B0%81.jpeg>
-</p>
+
 
 
 
