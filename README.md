@@ -1,6 +1,6 @@
 <p align="center">   <img width="900x417" height="100" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/3e03c3485d58a43cff62ff4173cda249feaa6c88/pdr2kl.png>
 </p>
-<p align="center">   <img width="500x417" height="300" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/3e03c3485d58a43cff62ff4173cda249feaa6c88/NewJeans%20Hanni%20-%20Zero%20MV.jpg>
+<p align="center">   <img width="500x517" height="290" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/3e03c3485d58a43cff62ff4173cda249feaa6c88/NewJeans%20Hanni%20-%20Zero%20MV.jpg>
 </p>
 </p><p align="center"> $\color{#47738e}{\textsf{✦ ◜얘기 늘어놓아 줄줄}}$ <img width="100x100" height="20" src=https://i.postimg.cc/ZRtv5PDx/IMG-8933.gif>
 </p>
