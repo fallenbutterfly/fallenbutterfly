@@ -2,8 +2,7 @@
 </p> </p><p align="center"> 
 
 <p align="center">   <img width="600x900" height="900" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/689450e5b74957409e65c068e4252d7f19c746f8/1x%20Nostalgic%20K-pop%20Y2K%20Stickers%20Water%20Bottle%20Stickers%20Girl%20Group%20Stickers%20K-pop%20Decal%20Y2K%20Style%20Haerin%20Sticker%20Laptop%20Sticker%20Gift-Photoroom.png>
-</p>
-</p><p align="center">𝘕𝘰𝘵 𝘫𝘶𝘴𝘵 𝘢𝘯𝘺𝘣𝘰𝘥𝘺 너를 상상했지
+</p></p><p align="center">𝘕𝘰𝘵 𝘫𝘶𝘴𝘵 𝘢𝘯𝘺𝘣𝘰𝘥𝘺 너를 상상했지
 항상 닿아있던
  <img width="100x100" height="20" src=https://64.media.tumblr.com/1ed9acdc6c7ccb2db2bad2951580c1ab/2f692420ece9ceb5-97/s75x75_c1/5a3d1169e7d9818b2f3886b836447518d1eeae97.gif>
 </p>
