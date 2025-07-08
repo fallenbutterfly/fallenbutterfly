@@ -1,4 +1,4 @@
-<p align="center">   <img width="900x417" height="100" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/3e03c3485d58a43cff62ff4173cda249feaa6c88/pdr2kl.png>
+<p align="center">   <img width="900x317" height=180" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/190d025834953266412f1aa2b111ea5c64b987c3/tumblr_6f1e5d35be3f39c7b363130cf2bb615e_c8a35eaa_2048.png>
 </p>
 <p align="center">   <img width="500x517" height="290" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/3e03c3485d58a43cff62ff4173cda249feaa6c88/NewJeans%20Hanni%20-%20Zero%20MV.jpg>
 </p>
